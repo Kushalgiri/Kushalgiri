@@ -12,4 +12,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ... Contant me
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... Try me
--->
